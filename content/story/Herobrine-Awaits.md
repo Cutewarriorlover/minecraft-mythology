@@ -1,0 +1,3 @@
+As Notch looked over his world, he felt that something was... off. A disturbance, if you will. However, he couldn't see anything out of the ordinary. He ignored it, thinking it was some new food that he tried. And indeed, just yesterday, he tried some of... what did the players call it? Ah, yes. Milk. However, he just couldn't shake off the feeling that something was about to go wrong... and not in a good way.
+
+When he was observing a **cow**, one of his creations, he noticed that the ground shook. However, he couldn't see anything that might have caused the shaking. Suddenly, a voice boomed, **"I AM THE MIGHTY HEROBRINE!"**.

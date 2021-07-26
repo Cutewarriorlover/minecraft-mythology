@@ -1,0 +1,11 @@
+At first... there was nothing. Not a single speck of a pixel, not a single block, not a trace of life. However, a some sort of light appeared. It was... odd, in a sort of way. While life, as we "humans" know it is a sort of living, breathing creature, this was some type of extraterrestrial being. And, so it was. The **Command Block**. The start of the world. And more, was to come.
+
+The Command Block  had powers unseen before (although, in a world where he was the first being to exist, that wasn't really saying much.) He'd already manifested creatures, items, blocks. But... what if he could replicate himself? He removed all his original creations, and started on another mission: get a friend.
+
+After *days*, *weeks*, maybe even *months* of testing, he finally settled on a boxy, human-like shape: Someone he called **Notch**. Notch was, simply, a god. His powers rivaled those of the Command Block itself. However, The command Block made sure **Notch** only used them for good. And thus, Notch created what he called the world of **Minecraft**. He created **Villagers**. He created **Water**, **Lava**, and more. And, of course, he replicated less powerful versions of himself, which he called **Players**.
+
+For a while, everything went as Notch intended. The players were trading with the villagers, and everything was peaceful. However, the players soon got greedy. They started to kill all the villagers for their own enjoyment. While Notch made sure all the villagers would respawn in their beds, it was still chaotic. Right when a villager would spawn, it would be killed by a waiting player. To fix this, Notch created a new type of entity: **Mobs**. The goal was that the players would want to get the rewards that the mobs dropped, and not chase after the villagers.
+
+His plan worked... mostly. The players, arrogant as they were, wanting to prove their power, started chasing after the mobs. However, some stayed, still wanting to mess around with the villagers. As the threats started decreasing, Notch felt a sense of dread. However, he ignored it, thinking it was something else. However, little did he know, his world would be changed forever.
+
+This story continues in the next part of this series, [Herobrine Awaits](/story/herobrine-awaits)!
